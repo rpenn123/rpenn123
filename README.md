@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @rpenn123
+- 👀 I’m interested in AI.
+- 🌱 I’m currently learning whatever is required!
+- 💞️ I’m looking to collaborate on nothing at this time.
+- 📫 rpenn@mobility123.com
